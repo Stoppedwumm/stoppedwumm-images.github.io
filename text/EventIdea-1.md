@@ -1,15 +1,27 @@
-# My Event Idea
-## Preperation
-Make a roblox game show stage
+Minigame Show
+Lets face it.
+We want to have all something of a EVENT
+But how
+How to include all users at the same time
+Thats right
+A roblox Minigame Show
 
-## Execution of plan
-Make Gameshow with minigames
+Featuring:
+DeathButton
 
-## After Plan
-*Well* just some prices
+Hide and Seek (never seen before)
 
-# Cool?
-## Support this with a thumbs up
+Cookie Clicker any% (wut?)
 
-### Why Roblox?
-This is a roblox developer server why are you even asking that
+And the best game of all time
+Draw battle
+
+But Stoppedwumm, where
+
+Thats easy, ROBLOX
+
+We can summon all scripters of this server to automate everything
+
+(And some other people to make the Stage ;-))
+
+Vote now!
